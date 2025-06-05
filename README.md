@@ -4,11 +4,11 @@
 
 # ❤️ 👉 【最新地址1】： https://www.duanshipin.my
 
-# ❤️ 👉 【最新地址2】： https://www.duanshipin.my
+# ❤️ 👉 【最新地址2】： https://m.duanshipin.my
 
 # ❤️ 👉 【最新地址3】： https://www.duanshipin.my
 
-# ❤️ 👉 【最新地址4】： https://www.duanshipin.my
+# ❤️ 👉 【最新地址4】： https://m.duanshipin.my
 
 # ❤️ 👉 【永久地址5】：https://dizhilou.pages.dev
 
